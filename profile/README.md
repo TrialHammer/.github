@@ -4,6 +4,6 @@
 
 🌈 Wiki: https://wiki.hammer.moe/
 
-💬 Forum: https://wiki.hammer.moe/
+💬 Forum: https://bbs.hammer.moe/
 
 🍿 Minecraft server map: https://map.hammer.moe/
